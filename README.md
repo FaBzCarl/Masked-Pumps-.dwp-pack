@@ -7,6 +7,7 @@ so uh , have fun using them , i guess
 # Original VoiceBanks and Samples/Credits :
 - GenoX
 - Blantados
+- Pap7ru5
 - Aussie Axe
 - Extended Central
 - FNF Mods Wiki Fandom
