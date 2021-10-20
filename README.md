@@ -14,4 +14,9 @@ so uh , have fun using them , i guess
 - Pap7ru5
 - Aussie Axe
 - Extended Central
+- Richie Scassellati
 - FNF Mods Wiki Fandom
+- LeGoldenBoots
+- F0X
+- PhyPsi15
+- FNACodys
